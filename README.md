@@ -1,1 +1,2 @@
 # dacup529.github.io
+Hello! My name is Reese Parker. My favorite animal typically switches between hedgehogs, guinea pigs, and fennec foxes. I am interested in learning more about how to use HTML and updating my knowledge set in it.
